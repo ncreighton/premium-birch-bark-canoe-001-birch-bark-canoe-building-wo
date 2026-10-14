@@ -1,0 +1,2 @@
+# premium-birch-bark-canoe-001-birch-bark-canoe-building-wo
+Tired of scattered YouTube videos and half-baked tutorials that leave you with a pile of shredded bark and frustration?  This studio gives you a complete, structured blueprint to build a functional birch bark canoe from scratch, while also teaching you complementary woodland crafts like basket weaving and container making. Unlike generic guides, it
